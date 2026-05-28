@@ -1,1 +1,0 @@
-# AI-Internship-Projects-2026
